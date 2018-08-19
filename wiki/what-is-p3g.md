@@ -1,4 +1,8 @@
 
+起源：
+
+Proof of game,gamble,girl community
+
 反对交易所霸权
 正真的持股
 真正自由的货币
